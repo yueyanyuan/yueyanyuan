@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-大家好，很高兴认识大家。
-我叫严耀宇，来自福建，兴趣广泛，乐观向上。
+大家好，很高兴认识大家。  
+我叫严耀宇，来自福建，兴趣广泛，乐观向上。  
 We're all traveling through time together, every day of our lives. All we can do is do our best to relish this remarkable ride.
